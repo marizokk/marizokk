@@ -1,4 +1,4 @@
-### estou me sentindo priveligiada de ter a ilustre presença de te ter visitando meu perfil 🙀🐈‍⬛
+### estou me sentindo priveligiada de ter a ilustre presença de te ter visitando meu perfil 🐈‍⬛
 
 a dona desse perfil se chama Mariana (eu)
 
