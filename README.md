@@ -1,6 +1,6 @@
-### estou me sentindo priveligiada de ter a ilustre presença de te ter visitando meu perfil 🐈‍⬛
+### estou me sentindo priveligiada de ter a sua ilustre presença em meu perfil 🐈‍⬛
 
-a dona desse perfil se chama Mariana (eu)
+me chamo mariana 😽
 
 - estou estudando no [alura](https://www.alura.com.br)
 - estou tentando me desenvolver na linguagem JavaScript
